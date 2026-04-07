@@ -1,1 +1,0 @@
-# Maturitni-projekt-bomba-v-kufriku
